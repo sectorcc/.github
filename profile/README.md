@@ -27,7 +27,7 @@
 
 ###
 
-<p align="left">We are a new Cheat provider mainly for FiveM Cheats <br><br>- 🔭 <br>- 📚 <br>- ⚡</p>
+<p align="left">We are a new Cheat provider mainly for FiveM Cheats <br><br>- 🔭 We habe the best undetected cheats ever made for fivem<br>- 📚 We invest a lot of time in researching new cheat methods to provide the best expirence for our users <br>- ⚡ Our Cheats outperform other cheat providiers</p>
 
 ###
 
